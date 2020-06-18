@@ -7,3 +7,5 @@ Rubeus Hagrid was an English half-giant wizard, son of Mr Hagrid and the giantes
 * In 1993, Hagrid would assume the post of Care of Magical Creatures professor after the retirement of Professor Silvanus Kettleburn.
 * As a member of both the original and the re-instated Order of the Phoenix, Hagrid fought in several battles of the First and the Second Wizarding Wars, including the Battle of Hogwarts in 1998.
 * By 2017, he was still living, and presumably still teaching and tending to his gamekeeping duties at Hogwarts, inviting Harry's son Albus Severus for tea when he joined the school as Harry informed him at the station, just as Hagrid had done to his father, Ron Weasley and Hermione Granger.
+
+> Follow the spiders!
