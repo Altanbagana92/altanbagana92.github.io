@@ -9,3 +9,5 @@ Rubeus Hagrid was an English half-giant wizard, son of Mr Hagrid and the giantes
 * By 2017, he was still living, and presumably still teaching and tending to his gamekeeping duties at Hogwarts, inviting Harry's son Albus Severus for tea when he joined the school as Harry informed him at the station, just as Hagrid had done to his father, Ron Weasley and Hermione Granger.
 
 > Follow the spiders!
+
+<img src="https://vignette.wikia.nocookie.net/harrypotter/images/f/fe/Rubeus_Hagrid.png/revision/latest?cb=20161123044204"/>
